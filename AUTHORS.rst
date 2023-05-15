@@ -1,7 +1,6 @@
 Authors
 -------
 
-* Eric (New contributor)
-* Anthony 
-
-
+王光卫
+https://www.guangweiblog.com
+https://googleseo.guangweiblog.com
